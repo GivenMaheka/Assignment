@@ -6,4 +6,4 @@ Group Members:
 113697 Destin Karume Emmanuel
 122994 Karuma Lorna Kathoni
 101618 Given Masheka
-Ivasha
+and Ivasha
